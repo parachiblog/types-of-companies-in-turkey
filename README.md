@@ -1,1 +1,0 @@
-# types-of-companies-in-turkey
